@@ -1,1 +1,10 @@
-# Actividad-2-POO-2026
+Universidad Nacional de Colombia
+
+
+Actividad 2
+
+
+Juan Jose arcila Vega
+
+
+Walter Hugo Arboleda Mazo
